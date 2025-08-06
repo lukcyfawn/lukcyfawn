@@ -6,7 +6,6 @@
 
 | [strawpage](https://lukcyfawn.straw.page/) ✧ [atabook](https://lukcyfawn.atabook.org/) |
 
-<img width="600" height="42" alt="image" src="https://github.com/user-attachments/assets/1e54e340-30bd-4324-9189-17c24f4c2661" />
 
 i am 18
 
