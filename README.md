@@ -2,7 +2,7 @@
 
 <img width="532" height="427" alt="lifeline2" src="https://github.com/user-attachments/assets/be1acdf1-d0a1-4599-a084-42a547b84972" />
 
-<img width="600" height="42" alt="image" src="https://github.com/user-attachments/assets/1e54e340-30bd-4324-9189-17c24f4c2661" />
+<img width="400" height="45" alt="image" src="https://github.com/user-attachments/assets/b3334f88-82d9-4322-947d-1ba547db7510" />
 
 | [strawpage](https://lukcyfawn.straw.page/) ✧ [atabook](https://lukcyfawn.atabook.org/) |
 
@@ -17,6 +17,6 @@ iwc i'm bad at it but i love talking to people, sorry if im awkward lel
 
 feel free to friend me and take inspo or copy idrc lalalala
 
-<img width="600" height="42" alt="image" src="https://github.com/user-attachments/assets/8cef9095-fe51-4031-8854-566efca92225" />
+<img width="400" height="45" alt="image" src="https://github.com/user-attachments/assets/2dd8f7e0-a8d6-433a-b04c-b20ea5ef6944" />
 
 thnx for reading
