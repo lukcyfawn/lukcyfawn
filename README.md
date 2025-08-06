@@ -1,5 +1,4 @@
-# lukcy
-hui i am lucky
+# hui i am lucky
 
 <img width="532" height="427" alt="lifeline2" src="https://github.com/user-attachments/assets/be1acdf1-d0a1-4599-a084-42a547b84972" />
 
