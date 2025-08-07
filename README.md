@@ -1,3 +1,6 @@
+![GitHub Views](https://komarev.com/ghpvc/?username=lukcyfawn&color=b16c13)
+
+
 <img width="532" height="427" alt="lifeline2" src="https://github.com/user-attachments/assets/be1acdf1-d0a1-4599-a084-42a547b84972" />
 
 <img width="400" height="45" alt="image" src="https://github.com/user-attachments/assets/b3334f88-82d9-4322-947d-1ba547db7510" />
