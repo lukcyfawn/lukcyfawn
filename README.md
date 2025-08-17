@@ -10,7 +10,7 @@
 
 i am 18
 
-i usually hang out in the roblox area or near/in the bakery
+i usually hang out in the roblox area, near/in the bakery or wif my friends in the squidgame area 
 
 c+h freely, encouraged | whisper to interact because im usually offtab
 
