@@ -10,16 +10,18 @@
 
 i am 18
 
-i usually hang out in the roblox area, near/in the bakery or wif my friends in the squidgame area 
+im always in the squidgame area  wif my friends
 
-c+h freely, encouraged | whisper to interact because im usually offtab
+c+h freely, encouraged
 
-iwc i'm bad at it but i love talking to people, sorry if im awkward lel
+whisper to interact because im always offtab, don't expect a response back, i'm bad at realizing i have messages sorry!!! but i always read them!!!
+
+iwc i'm incredibly awkward
 
 feel free to friend me and take inspo or copy idrc lalalala
 
-sign my ata or leave me a gimmick! ehehe
+sign my ata plz
 
 <img width="400" height="45" alt="image" src="https://github.com/user-attachments/assets/2dd8f7e0-a8d6-433a-b04c-b20ea5ef6944" />
 
-strawpage has more info; thnx for reading
+thnx for reading
