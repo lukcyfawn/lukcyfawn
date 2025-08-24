@@ -1,4 +1,6 @@
-![GitHub Views](https://komarev.com/ghpvc/?username=lukcyfawn&color=cc8f1e)
+# read my strawpage before interacting plz
+
+![GitHub Views](https://komarev.com/ghpvc/?username=lukcyfawn&color=ac160b)
 
 
 <img width="532" height="427" alt="lifeline2" src="https://github.com/user-attachments/assets/be1acdf1-d0a1-4599-a084-42a547b84972" />
