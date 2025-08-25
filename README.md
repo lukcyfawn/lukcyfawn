@@ -8,7 +8,6 @@
 | [strawpage](https://lukcyfawn.straw.page/) ✧ [atabook](https://lukcyfawn.atabook.org/) |
 
 
-i am 18
 
 im always in the squidgame area  wif my friends
 
