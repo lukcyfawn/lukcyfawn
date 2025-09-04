@@ -9,7 +9,7 @@
 
 
 
-im always in the squidgame area  wif my friends
+ive been in the hs area recently!
 
 c+h freely, encouraged
 
