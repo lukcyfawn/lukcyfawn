@@ -9,7 +9,7 @@
 
 
 
-ive been in the hs area recently!
+im always wherever my friends are :P
 
 c+h freely, encouraged
 
