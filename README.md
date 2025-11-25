@@ -9,13 +9,11 @@
 
 
 
-im always wherever my friends are :P
+im wherever my friends are
 
-c+h freely, encouraged
+c+h freely
 
-whisper to interact because im always offtab, don't expect a response back, i'm bad at realizing i have messages sorry!!! but i always read them!!!
-
-iwc i'm incredibly awkward
+whisper to interact because im always offtab, don't expect a response back, i'm bad at realizing i have messages sorry
 
 feel free to take inspo or copy idrc lalalala
 
