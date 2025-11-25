@@ -1,4 +1,4 @@
-# read my strawpage before interacting plz
+# read my strawpage before interacting
 
 ![GitHub Views](https://komarev.com/ghpvc/?username=lukcyfawn&color=ac160b)
 
