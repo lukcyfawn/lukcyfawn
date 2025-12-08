@@ -17,6 +17,6 @@ whisper to interact because im always offtab, don't expect a response back, i'm 
 
 feel free to take inspo or copy idrc lalalala
 
-sign my ata
+sign my ata + decorate my tree pls d:
 
 <img width="400" height="45" alt="image" src="https://github.com/user-attachments/assets/2dd8f7e0-a8d6-433a-b04c-b20ea5ef6944" />
