@@ -1,6 +1,5 @@
 # <img width="20" height="20" alt="a3c39389" src="https://github.com/user-attachments/assets/c2cc3229-9dc0-4c0e-8dce-bc78bf2b934f" />
-
-
+</div> <div align="center">
 
 ![GitHub Views](https://komarev.com/ghpvc/?username=lukcyfawn&amp;color=ac160b&amp;style=flat&amp;label=🦌+deers+entered)
 
