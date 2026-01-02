@@ -1,7 +1,11 @@
-# <img width="20" height="20" alt="a3c39389" src="https://github.com/user-attachments/assets/c2cc3229-9dc0-4c0e-8dce-bc78bf2b934f" />
+# <img width="210" height="51" alt="62b40eb6_original" src="https://github.com/user-attachments/assets/ea2c1a59-f421-4ffb-bcfe-4f58fd650a84" />
+
 </div> <div align="center">
 
-![GitHub Views](https://komarev.com/ghpvc/?username=lukcyfawn&amp;color=ac160b&amp;style=flat&amp;label=🦌+deers+entered)
+
+![b8ead59b6c345dc71ac131862d42ff1c](https://github.com/user-attachments/assets/cdc59c2c-1316-427b-a211-d1b5a17158d9)
+
+![GitHub Views](https://komarev.com/ghpvc/?username=lukcyfawn&amp;color=483916&amp;style=flat&amp;label=🦌+deers+entered )
 
 <img width="400" height="45" alt="image" src="https://github.com/user-attachments/assets/b3334f88-82d9-4322-947d-1ba547db7510" />
 
@@ -34,3 +38,5 @@ sign my ata pls d:
 <img width="101" height="58" alt="tumblr_83b97fd2140e8088050a93d181a330cb_332395ce_250" src="https://github.com/user-attachments/assets/fa8cdccc-3baf-4ba7-ba29-38e085607ca7" />
 <img width="99" height="56" alt="tumblr_9cfef6d52a48f3d98fdd3287fd253e52_9353863c_100" src="https://github.com/user-attachments/assets/19a62a28-4036-4673-9952-3aab09cf7b9f" />
 <img width="99" height="56" alt="tumblr_05f57de1919e548dfbd66607d85aa44e_73a8a3a7_100" src="https://github.com/user-attachments/assets/1870d151-6bcb-4edf-b796-77815c0570c7" />
+
+![8cb47556](https://github.com/user-attachments/assets/78bc500c-66c3-4630-abbd-a3912b89777f) ![8cb47556](https://github.com/user-attachments/assets/78bc500c-66c3-4630-abbd-a3912b89777f)
