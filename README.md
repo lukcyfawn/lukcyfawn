@@ -2,7 +2,7 @@
 
 
 
-![GitHub Views](https://komarev.com/ghpvc/?username=lukcyfawn&color=ac160b)
+![GitHub Views](https://komarev.com/ghpvc/?username=lukcyfawn&amp;color=ac160b&amp;style=flat&amp;label=🦌+deers+entered)
 
 <img width="400" height="45" alt="image" src="https://github.com/user-attachments/assets/b3334f88-82d9-4322-947d-1ba547db7510" />
 
