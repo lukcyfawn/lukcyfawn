@@ -1,5 +1,4 @@
 # <img width="210" height="51" alt="62b40eb6_original" src="https://github.com/user-attachments/assets/ea2c1a59-f421-4ffb-bcfe-4f58fd650a84" />
-
 </div> <div align="center">
 
 
@@ -39,4 +38,6 @@ sign my ata pls d:
 <img width="99" height="56" alt="tumblr_9cfef6d52a48f3d98fdd3287fd253e52_9353863c_100" src="https://github.com/user-attachments/assets/19a62a28-4036-4673-9952-3aab09cf7b9f" />
 <img width="99" height="56" alt="tumblr_05f57de1919e548dfbd66607d85aa44e_73a8a3a7_100" src="https://github.com/user-attachments/assets/1870d151-6bcb-4edf-b796-77815c0570c7" />
 
-![8cb47556](https://github.com/user-attachments/assets/78bc500c-66c3-4630-abbd-a3912b89777f) ![8cb47556](https://github.com/user-attachments/assets/78bc500c-66c3-4630-abbd-a3912b89777f)
+![8cb47556](https://github.com/user-attachments/assets/78bc500c-66c3-4630-abbd-a3912b89777f)
+![tumblr_2d446781f821fe5f98f4337e3b822eb3_df65e064_100](https://github.com/user-attachments/assets/a6dd727b-907e-429c-8664-6c065669bc26)
+
