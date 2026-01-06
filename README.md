@@ -4,7 +4,7 @@
 
 ![b8ead59b6c345dc71ac131862d42ff1c](https://github.com/user-attachments/assets/cdc59c2c-1316-427b-a211-d1b5a17158d9)
 
-![GitHub Views](https://komarev.com/ghpvc/?username=lukcyfawn&amp;color=382b0c&amp;style=flat&amp;label=—+🦌+deers+taking+a+nap+—)
+![GitHub Views](https://komarev.com/ghpvc/?username=lukcyfawn&amp;color=382b0c&amp;style=flat&amp;label=—+🦌+deers+frolicking+—)
 
 <img width="400" height="45" alt="image" src="https://github.com/user-attachments/assets/b3334f88-82d9-4322-947d-1ba547db7510" />
 
