@@ -3,7 +3,7 @@
 
 </div> <div align="center">
 
-![GitHub Views](https://komarev.com/ghpvc/?username=lukcyfawn&amp;color=661c17&amp;style=flat&amp;label=🫀)
+![GitHub Views](https://komarev.com/ghpvc/?username=lukcyfawn&amp;color=ac1e15&amp;style=flat&amp;label=🫀)
 
 <img width="448" height="36" alt="tumblr_5242415fc369f0bc613db190ba269726_07493b52_1280" src="https://github.com/user-attachments/assets/e607cf54-b50e-4343-82ed-8e72ae8ccd55" />
 
