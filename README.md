@@ -3,7 +3,6 @@
 
 </div> <div align="center">
 
-<img width="240" height="240" alt="tumblr_4dbe0e88e2a1908f6d2884ef130582cd_b286c9f1_1280" src="https://github.com/user-attachments/assets/7039eac9-4e15-4141-a5eb-1519daf85f6a" />
 
 ![GitHub Views](https://komarev.com/ghpvc/?username=lukcyfawn&amp;color=e7e2dc&amp;style=flat&amp;label=₊ꔫ˚)
 
